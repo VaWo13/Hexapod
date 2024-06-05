@@ -1,1 +1,1 @@
-My Hexapoda
+My Hexapod
